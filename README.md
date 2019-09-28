@@ -1,2 +1,1 @@
-# paradoxical
-ZYC' s paradoxical life  
+## New Chapter
